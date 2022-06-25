@@ -1,0 +1,6 @@
+-  Hi, I’m @morginc-1
+-  I’m interested in games like mineraft and roblox
+-  I’m currently learning luau/lua
+-  I’m looking to collaborate on nothing right now
+-  How to reach me: gmail morganic111@gmail.com (might not get back to you for a day or two)
+-  I do most of my work for fun and take my time with things (i'm slow as hell)
